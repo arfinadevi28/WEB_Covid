@@ -11,4 +11,6 @@
 ![Alt Text](https://github.com/arfinadevi28/WEB_Covid/blob/master/ceek.PNG)
 
 ### Jika kalian ingin mengetahui profil informasi tentang saya silahkan dilihat 
-![Alt Text](
+![Alt Text](https://github.com/arfinadevi28/WEB_Covid/blob/master/profil.PNG)
+
+### MOHON MAAF JIKA BELOM LENGKAP HEHE. THANK YOU
